@@ -1,3 +1,5 @@
 [![](https://gamebanana.com/wips/embeddables/102276?type=sd_image)](https://gamebanana.com/wips/102276)
-# Kooky-CD
+# Kooky CD
 oh here we go again...
+
+a work n progress
